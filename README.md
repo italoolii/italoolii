@@ -3,7 +3,6 @@
 - 🔭 Eu atualmente atuo na área de Desempregado
 - 🌱 Estou estudando sobre Desenvolvimento de Sistemas e também desenho
 - 💬 Curto jogar videogame e vôlei
-- 📫 Como conseguir contato: Apartir do sor Diegão
 - ⚡ Fato engraçado, não sei mexer com CSS até hoje.
 
 🏃‍➡️🏃‍➡️🏃‍➡️ --> Tamo Junto! --> 🏃‍➡️🏃‍➡️🏃‍➡️
